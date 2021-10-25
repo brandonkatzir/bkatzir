@@ -1,6 +1,6 @@
 ## Welcome to My Page
 
-* I’m an Assitant Professor and a Digital Services Librarian at Oklahoma State University. Here's a little information about my work life:
+I’m an Assitant Professor and a Digital Services Librarian at Oklahoma State University. Here's a little information about my work life:
 * I spent the first part of my career researching the history of rhetoric, especially in the Jewish and Muslim textual traditions. I’ve been published in top venues like *Rhetoric Society Quarterly*, *Rhetoric*a, and *Philosophy & Rhetoric*
 * Currently, I have a couple of ongoing article/book projects in the works: my article on nineteenth-century Jewish publisher and community leader, Isaac Leeser is forthcoming in *Jewish History*. I'm also writing these days on lexicography and style. I have a forthcoming article in *Rhetorica* on the history of style guides, and I'm also writing an article exploring the research habits of lexicographers 
 * I'm working on two Yiddish-language projects, one on Yiddish author and essayist Chava Rosenfarb and the other on Yiddish playwright Jacob Gordin
