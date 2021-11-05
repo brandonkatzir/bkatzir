@@ -1,4 +1,4 @@
-## Welcome to My Page
+## Hello 
 
 I’m an Assistant Professor and a Digital Services Librarian at Oklahoma State University. Here's a little information about my work life:
 * At OSU, I work in the Edmon Low library and am responsible for managing our open access journals and helping to keep our online databases up and running
